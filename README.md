@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Samkhyan1
-- 👀 I’m interested in ... awakening (yoga amd coffee)
+- 👀 I’m interested in ... awakening (yoga and coffee)
 - 🌱 I’m currently learning ... sanskrit
 - 💞️ I’m looking to collaborate on ... sanskrit
 - 📫 How to reach me ... samkhyan1@gmail.com
